@@ -1,1 +1,1 @@
-# bukak
+# bukak dong
